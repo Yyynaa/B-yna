@@ -19,11 +19,6 @@ Blackpink made their debut in 2016 with the short album Square One, which had on
 According to the statement, "the connotation of BLACKPINK intends to contrast the popular idea of the hue pink." "Pink is typically used to depict prettiness, but _BLACKPINK_  truly means 'Pretty isn't everything.' It also represents that they are a team that includes not just beauty, but also excellent skill."
 
 
-# LOVESICK GIRLS
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dyRsYk0LyA8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
 # Who are the members of Blackpink?
 
 
