@@ -24,22 +24,10 @@ According to the statement, "the connotation of BLACKPINK intends to contrast th
 
 ## Kim Jisoo
 
-![jisoo](https://user-images.githubusercontent.com/94122259/158762004-bbdd7727-2953-4b5d-aa4c-0b1f73074da5.jpeg)
-
-
 Kim Jisoo is a singer, often referred to as "adorable" by BLINKs (the official name of Blackpink fans). She's known her steadiness and composure — and for balancing random objects on her head or shoulders — previous videos showed her with a cup or an award on her head. The BLACKPINK member is the only one who has not made her solo debut, however this will change very soon, as she recently announced that it will be released in 2022. Jisoo has everyone captivated with her K-Drama “Snowdrop“.
 
 
-# SNOWDROP
-
-![Snowdropjpg](https://user-images.githubusercontent.com/94122259/158762057-af004a42-37eb-46ea-b5a7-d9652ee8304b.jpg)
-
-
-
 ## Kim Jennie
-
-![jennie](https://user-images.githubusercontent.com/94122259/158762098-b1e06300-b1d8-404a-8c69-4f9a79f1ef40.jpg)
-
 
 Kim Jennie was in the trainee for just shy of six years — the longest of the members. Jennie lived in New Zealand before moving back to South Korea in 2010, and speaks fluent English, Korean, and Japanese. She was the first member of Blackpink to release an individual track, titled "SOLO."
 
@@ -51,8 +39,6 @@ Kim Jennie was in the trainee for just shy of six years — the longest of the m
 
 
 ## Park Chaeyoung (Rosé)
-
-![chaeyoung](https://user-images.githubusercontent.com/94122259/158762126-dfd2574b-61d0-4aba-b0fc-365d619c9f4a.jpg)
 
 Park Chaeyoung (Rosé) was born in New Zealand and raised in Australia — where she auditioned for YG Entertainment. Rosé is fluent in English and learned Korean after moving to South Korea to take part in the trainee program. She is the group's main singer, and fans claim her distinct voice is easy to recognize. Rosé's solo album consists of two songs namely the title track On the Ground and the second one, Gone.
 
@@ -69,8 +55,6 @@ Park Chaeyoung (Rosé) was born in New Zealand and raised in Australia — where
 
 
 ## Lalisa Manoban
-
-![lisa](https://user-images.githubusercontent.com/94122259/158762169-2fe4fec7-5ae4-468e-8373-4edac908aa21.jpg)
 
 Lalisa Pranpriya Manoban is known for both her rap and dance skills. Born and raised in Thailand, Lisa (like Rosé) — learned Korean after moving to South Korea in 2011. Lisa also speaks English, Japanese, and Chinese. During promo appearances, Lisa often showcases her impromptu dancing skills, creating viral moments for the group. Lisa has finally made her highly anticipated solo debut with the release of her first-ever single album, 'Lalisa'. The project features four tracks, including the title track 'Lalisa' and B-side 'Money', alongside their instrumental versions.
 
